@@ -26,7 +26,7 @@ Chapter 1
    Part III (Prehistoric Moon)
      -Signal is apparently coming from an abandoned Alien structure on the moon
      -Player gathers info that abandoned Alien structure was used as an observatory to monitor prehistoric earth by an ancient alien race
-     
+     -
     
     
     
